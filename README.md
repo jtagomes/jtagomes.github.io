@@ -1,4 +1,4 @@
-Página Acadêmica
+Academic Web Page
 
 J. T. A. GOMES
 
