@@ -1,6 +1,6 @@
-Academic Web Page
+J. T. A. GOMES Academic Web Page 
 
-J. T. A. GOMES
+https://sites.google.com/view/jtagomes
 
 Prof. João Tiago Assunção Gomes
 
